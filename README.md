@@ -1,4 +1,4 @@
-👀 Do be scared to post your report on Linkedin!!
+👀 Don't be scared to post your report on Linkedin!!
 
 
 <!---
